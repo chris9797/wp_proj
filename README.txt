@@ -1,2 +1,1 @@
-ggwp is very gud
 
